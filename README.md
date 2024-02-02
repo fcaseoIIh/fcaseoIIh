@@ -6,7 +6,7 @@ ___
 -  PRONOUNS: ...   She/Her/They/Them . Preferably they, but use she if you want :>
 ___
 -  Fun fact: ...   I'm really platonic >O<
-Timezone: ... UTC+ 8:00
+Timezone: ... UTC +8:00
 
 <!--
 **go1qjo/go1qjo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
