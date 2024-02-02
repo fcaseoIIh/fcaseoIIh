@@ -1,5 +1,5 @@
-### Short (probably informative or not, hel) Intro.!!
-
+### Short Intro.!!
+(probably informative or not, hel)
 
 -  NICKNAMES: ... Zai/Ren or Aiko !! :D
 -  HOW TO REACH/CHAT ME: ... Using my social accounts . Tiktok & Discord (Discord: zairrren)
