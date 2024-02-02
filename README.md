@@ -1,4 +1,4 @@
-### Short (probably informative or not, HELP) Intro.!!
+### Short (probably informative or not, hel) Intro.!!
 
 -  How to reach me: ... Using my social accounts . Tiktok & Discord (Discord: zairrren)
 -  Pronouns: ... She/Her/They/Them . Preferably they, but use she if you want :>
