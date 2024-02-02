@@ -1,5 +1,5 @@
 ### Short Intro.!!
-(probably informative or not, hel)
+- You can freely ask what fandoms i am (or used to be) in!!
 ___
 -  NICKNAMES: ...   Zai/Ren or Aiko !! :D
 -  HOW TO REACH/CHAT ME: ...   Using my social accounts . Tiktok & Discord (Discord: zairren)
