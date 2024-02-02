@@ -1,12 +1,12 @@
 ### Short Intro.!!
 (probably informative or not, hel)
-___
+_
 -  NICKNAMES: ...   Zai/Ren or Aiko !! :D
 -  HOW TO REACH/CHAT ME: ...   Using my social accounts . Tiktok & Discord (Discord: zairren)
 -  PRONOUNS: ...   She/Her/They/Them . Preferably they, but use she if you want :>
 -  BIRTHDAY DATE: ...   February 2 !! :3
 -  TIMEZONE: ...   UTC +8:00
-___
+_
 -  Fun fact: ...   I'm really platonic >O<
 
 <!--
