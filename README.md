@@ -1,9 +1,10 @@
 ### Short (probably informative or not, hel) Intro.!!
 
 
--  Names to call me: ... Zai/Ren or Aiko !! :D
--  How to reach me: ... Using my social accounts . Tiktok & Discord (Discord: zairrren)
--  Pronouns: ... She/Her/They/Them . Preferably they, but use she if you want :>
+-  NICKNAMES: ... Zai/Ren or Aiko !! :D
+-  HOW TO REACH/CHAT ME: ... Using my social accounts . Tiktok & Discord (Discord: zairrren)
+-  PRONOUNS: ... She/Her/They/Them . Preferably they, but use she if you want :>
+
 -  Fun fact: ... I'm really platonic >O<
 
 
