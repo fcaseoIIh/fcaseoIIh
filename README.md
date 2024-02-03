@@ -7,7 +7,7 @@ ___
 -  BIRTHDAY DATE: ...   February 2 !! :3
 -  TIMEZONE: ...   UTC +8:00
 ___
--  Fun fact: ...   I'm really platonic >O<
+-  Fun fact: ...   I'm really platonic :]
 
 <!--
 **go1qjo/go1qjo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
