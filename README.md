@@ -1,8 +1,5 @@
 ### Short Intro.!!
-- School Sched: Mon-Fri 
-UTC+ 8 Timezone
-6am-11am - Morning class
-12/1pm-4pm - Afternoon class
+- School Sched: Mon-Fri | Timezone UTC+ 8 |  6am-11am - Morning class | 12/1pm-4pm - Afternoon class
 ___
 -  NICKNAMES: ...   Zai/Ren or Aiko !! :D
 -  HOW TO REACH/CHAT ME: ...   Using my social accounts . Tiktok & Discord (Discord: zairren)
