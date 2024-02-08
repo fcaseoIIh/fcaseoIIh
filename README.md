@@ -1,5 +1,8 @@
 ### Short Intro.!!
-- You can freely ask what fandoms i am (or used to be) in!!
+- School Sched: Mon-Fri 
+UTC+ 8 Timezone
+6am-11am - Morning class
+12/1pm-4pm - Afternoon class
 ___
 -  NICKNAMES: ...   Zai/Ren or Aiko !! :D
 -  HOW TO REACH/CHAT ME: ...   Using my social accounts . Tiktok & Discord (Discord: zairren)
@@ -7,7 +10,7 @@ ___
 -  BIRTHDAY DATE: ...   February 2 !! :3
 -  TIMEZONE: ...   UTC +8:00
 ___
--  Fun fact: ...   My birthday date is before getos!! :]
+-  Fun fact: ...   I have over 5 OCs' like Kuro !!
 ___
 ...![image](https://github.com/KuroJenji/KuroJenji/assets/148338376/d02e7653-873d-4186-9968-7d9069b9d567)
 
