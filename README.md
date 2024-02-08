@@ -9,7 +9,7 @@ ___
 ___
 -  Fun fact: ...   My birthday date is before getos!! :]
 ___
-![image](https://github.com/KuroJenji/KuroJenji/assets/148338376/d02e7653-873d-4186-9968-7d9069b9d567)
+  ![image](https://github.com/KuroJenji/KuroJenji/assets/148338376/d02e7653-873d-4186-9968-7d9069b9d567)
 
 ![image](https://github.com/KuroJenji/KuroJenji/assets/148338376/0ae32459-008a-4583-a497-34505d9453ab)
 
