@@ -7,7 +7,7 @@ ___
 -  BIRTHDAY DATE: ...   February 2 !! :3
 -  TIMEZONE: ...   UTC +8:00
 ___
--  Fun fact: ...   I have over 5 OCs' like Kuro !!
+-  Fun fact: ...   I have over 4 OCs' !!
 ___
 ...![image](https://github.com/KuroJenji/KuroJenji/assets/148338376/d02e7653-873d-4186-9968-7d9069b9d567)
 
