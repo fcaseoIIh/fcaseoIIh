@@ -1,4 +1,4 @@
-###...! Short Intro.
+###SHORT INTRO.
 
 - SCHOOL SCHED.: Mon-Fri | Timezone UTC+ 8 |  6am-11am - Morning class | 12/1pm-4pm - Afternoon class
 ..
