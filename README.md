@@ -2,7 +2,7 @@
 ___
 ..
 - | NICKNAMES: ...   Zai, Ren or Aiko
-- | HOW TO REACH/CHAT ME: ...   Discord . (Using my social accounts)
+- | HOW TO REACH/CHAT ME: ...   Discord - fycaseoh . (Using my social accounts)
 - | PRONOUNS: ...   She/Her/They/Them . Preferably they, but use she if you want
 - | BIRTHDAY DATE: ...   February 2
 - | TIMEZONE: ...   UTC +8:00
