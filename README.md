@@ -9,7 +9,8 @@ ___
 ..
 ___
 | SCHOOL SCHED.: ...  Mon-Fri
--  6am-11am - Morning class | 12/1pm-4pm - Afternoon class
+- Morning class - 6am-11am
+- Afternoon class - 12/1pm-4pm 
 ___
 ...![JjK](https://github.com/6illusions/KuroJenji/assets/148338376/81f70df3-fc87-4e47-8fc0-04dd4a40a0c5)
 
