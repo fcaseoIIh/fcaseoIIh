@@ -2,16 +2,10 @@
 ___
 ..
 - | NICKNAMES: ...   Zai, Ren, or Kuro
-- | HOW TO REACH/CHAT ME: ...   Discord - kuronnyon
+- | DISCORD: ...   kuronnyon
 - | PRONOUNS: ...   They/Them . Preferably they, but use she for friends
 - | BIRTHDAY DATE: ...   February 2
 ..
-___
-| SCHOOL SCHED.: ...  Mon-Fri
-- Morning class - 7am-11am
-- (lunchtime)
-- Afternoon class - 1pm-4pm
-- ..
 <!--
 **go1qjo/go1qjo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
